@@ -1,1 +1,1 @@
-The accountabilitrio is the coolest trip in the whole world. Fight me.
+The accountabilitrio is the coolest trio in the whole world. Fight me.
